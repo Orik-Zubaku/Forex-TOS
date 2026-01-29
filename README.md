@@ -1,2 +1,2 @@
 # Forex-Bot
-Terms Of Service And Pricavy Police Of Forex Bot
+Terms Of Service And Pricavy Policy Of Forex Bot
